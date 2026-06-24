@@ -111,6 +111,4 @@ Grammar and sentence structures are taught through **engaging, real-life stories
 
 ## 📬 Contact
 
-Visit **[thatsmandarin.com](https://www.thatsmandarin.com)** get in touch with the admissions team.
-
--
+Visit **[thatsmandarin.com](https://www.thatsmandarin.com)** get in touch with the admissions team
